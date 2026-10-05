@@ -176,6 +176,6 @@ No unauthorized systems are targeted.
 
 **GitHub:** [github.com/mercyjay-12]
 
-**LinkedIn:** [https://www.linkedin.com/in/mercy-jaluo]
+**LinkedIn:** [https://www.linkedin.com/in/mercy-jaluo-b26969194/]
 
 **Medium:** [medium.com@mercyjaluo]
